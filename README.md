@@ -1,0 +1,1 @@
+# log_bait_sem_vogais
